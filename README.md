@@ -5,7 +5,7 @@
 
  GOGOGOGOGOGOGOOGOGOGOOGOG
 
-
+Behind the smoke you can't see :c
 
  8=D
 
